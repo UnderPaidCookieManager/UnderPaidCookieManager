@@ -1,2 +1,3 @@
-I make minecraft utility clinets and shit like that
-if you dont trust the client idfc man your choice
+i have no life
+i dont know how to do anything
+i just make rusted warfare stuff
